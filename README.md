@@ -4,4 +4,5 @@
 ##### Description:
 
 
-[![Watch the video](https://imgur.com/a/FTJ84Fj)](https://youtu.be/S62pcmaetEc)
+[![Watch the video](https://i.imgur.com/njyfVPv.jpg)](https://youtu.be/S62pcmaetEc)
+
